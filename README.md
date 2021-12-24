@@ -1,1 +1,1 @@
-hui prosto
+hui ne prostoy
